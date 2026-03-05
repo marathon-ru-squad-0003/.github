@@ -5,7 +5,9 @@
 
 
 **Присоединяйся по ссылке: [Жми для перехода в дискорд](https://discord.gg/tgurPyD4H6)**
+
 или прямая ссылка https://discord.gg/tgurPyD4H6
+
 **Телеграм канал с новостями: [Жми для перехода в телеграм](https://t.me/marathonsng)**
 
 ![screenshot](https://i.postimg.cc/htz80gxd/Marathon-Reprisal-Header-Front-Page-Banner-PC.jpg)
@@ -26,7 +28,9 @@
 
 Переходи по ссылке для вступления:
 [Жми для перехода в дискорд](https://discord.gg/tgurPyD4H6)
+
 прямая ссылка https://discord.gg/tgurPyD4H6
+
 [Жми для перехода в телеграм](https://t.me/marathonsng)
 
 и становись частью сильного RU-комьюнити.
